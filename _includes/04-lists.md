@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+-Supertramp
+-Jethro Tull
+-Dire Straits
+  -Mark Knopfler solo career
